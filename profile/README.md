@@ -1,6 +1,6 @@
 # Doctor Marketing Agency: 5 Steps to Book Cold Leads
 
-In today's highly competitive healthcare landscape, a [Doctor Marketing Agency](https://www.deviantart.com/maikel2496/art/No-Ads-45-More-Leads-Doctor-Marketing-Agency-1186794644) plays a critical role in helping practices stand out and grow.
+In today's highly competitive healthcare landscape, a [doctor marketing agency](https://www.intelliusmedical.com/) plays a critical role in helping practices stand out and grow.
 
 Yet even with top-tier marketing strategies, many practices still face a big challenge: how do you convert cold leads into booked appointments?
 
